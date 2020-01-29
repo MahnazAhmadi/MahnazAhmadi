@@ -1,0 +1,2 @@
+# MahnazAhmadi
+Mahnaz Ahmadi currently works at IRAN Meteorology Organization and phd student at the Department of Irrigation and Reclamation Engineering, University of Tehran. Mahnaz does research in AgroMeteorology, Meteorology, Environmental Science. I finished 16 research projects and 8 Essay. Excellent technical and analytical skills, organized with strong attention to details and deadlines, good leadership ability with background, result-oriented, strong problem-solving, and very well structured.
